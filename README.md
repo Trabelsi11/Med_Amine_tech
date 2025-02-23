@@ -1,1 +1,0 @@
-# Med_Amine_tech
